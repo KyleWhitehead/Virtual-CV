@@ -1,8 +1,8 @@
 
 Kyle Whitehead
-(406)202-8933
-kylewhitehead0033@yahoo.com
-www.linkedin.com/in/kylewhitehead0033
+(406)202-8933<br>
+kylewhitehead0033@yahoo.com<br>
+www.linkedin.com/in/kylewhitehead0033<br>
 
 <h2>Virtual CV</h2>
 <p><h3>Education</h3></p>
