@@ -1,5 +1,9 @@
 
 Kyle Whitehead
+(406)202-8933
+kylewhitehead0033@yahoo.com
+www.linkedin.com/in/kylewhitehead0033
+
 <h2>Virtual CV</h2>
 <p><h3>Education</h3></p>
 <h4>FreeCodeCamp</h4>
